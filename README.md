@@ -1,7 +1,6 @@
 enwbwb
 qegqeg
 zxczxc
-sfsfh
-d
+sfs
 c 
 svff
